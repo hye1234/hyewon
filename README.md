@@ -1,1 +1,1 @@
-20223096 Hyewon qt
+20223096 Hyewon software학부
